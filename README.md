@@ -11,3 +11,7 @@ Features of the App :)
 
 Preview of The App:
 
+
+https://user-images.githubusercontent.com/73701565/136971372-27210bea-1b40-4b6d-8ff8-2909f38b4a51.mp4
+
+
